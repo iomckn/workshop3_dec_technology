@@ -1,1 +1,0 @@
-# workshop3_dec_technology
